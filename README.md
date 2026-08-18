@@ -18,7 +18,7 @@ In my freetime I like to do many things, both athletic and creative. Some of the
 
 Out of all the activities and participate in, sports takes up most of my time. Currently, I play varisty soccer and tennis for this school. Outside of school, I play club soccer at the ECNL-RL level with the LA Breakers. I mostly play winger or forward, although sometimes I play as a center attacking mid. My goal is to eventually play Division 3 at a high academic school for college. For tennis, I can play both singles and doubles, depending on where I'm needed. As much as I love soccer and it will always be my favorite sport, I think sometimes loving something too much can be harmful. There is a lot of pressure to play well, win trophies, make playoffs, etc... Tennis is more for fun, something I can play with no expectations. I feel as though it balances how much pressure I put on myself and lowers my stress from school and soccer.
 
-To fulfill the more creative side of me, I do filmmaking and photography. I love being able to capture things in a moment and convey a message or story through my perspective. As of right now, I have won the Friend's Choice Award at UCLA for my film *Uninvited Guests* and will be attending the Calabasas Film Festival in September for my film *Cookie Monster* Similar to film, I also do photography. I love taking sports photos, but nature is a close second. I'm looking to sign a contract this week or next with Sun Valley to take photos for their sports team. 
+To fulfill the more creative side of me, I do filmmaking and photography. I love being able to capture things in a moment and convey a message or story through my perspective. As of right now, I have won the Friend's Choice Award at UCLA for my film *Uninvited Guests* and will be attending the Calabasas Film Festival in September for my film *Cookie Monster*. Similar to film, I also do photography. I love taking sports photos, but nature is a close second. I'm looking to sign a contract this week or next with Sun Valley to take photos for their sports team. 
 
 ---
 ### Summer of 2026‼️
@@ -28,8 +28,8 @@ To fulfill the more creative side of me, I do filmmaking and photography. I love
 | | Movie | Director | Rating (⭐⭐⭐⭐⭐) | Thoughts |
 | - | - | - | - | - |
 | 1 | "The Odyssey" | Christopher Nolan | ⭐⭐⭐⭐⭐ | Cinematic masterpiece. His limited use of CGI really brought this film to life. It was a tad bit loud and I disliked how it strayed from the original story, but overall will probably win Best Picture at the Oscars this year. |
-| 2 | "Spider-Man: Brand New Day" | Destin Daniel Cretton | ⭐⭐⭐⭐ | Had a great plot, but visually wasn't as great as the Odyssey. Tom Holland had a great performance!
-| 3 | "Beautiful Boy" | Felix Van Groeningen | ⭐⭐⭐⭐⭐⭐ | This is my favorite movie of all time and definitly broke the rating scale. It isn't one I watched over the summer, but it is so good I **had** to include it on this list. It's the kind of movie you can only watch once and I don't say that lightly.
+| 2 | "Spider-Man: Brand New Day" | Destin Daniel Cretton | ⭐⭐⭐⭐ | Had a great plot, but visually wasn't as great as the Odyssey. At times it felt predictable what was going to happen, and the post-production could've been better. Tom Holland had a great performance!
+| 3 | "Beautiful Boy" | Felix Van Groeningen | ⭐⭐⭐⭐⭐⭐ | This is my favorite movie of all time and definitely broke the rating scale. It isn't one I watched over the summer, but it is so good I **had** to include it on this list. It's the kind of movie you can only watch once and I don't say that lightly.
 
 #### Music
 
