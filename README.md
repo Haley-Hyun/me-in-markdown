@@ -45,7 +45,7 @@ If you have the chance, I highly reccomend his new album *The Great Divide*. eve
 
 ![Collage of what I did over the summer!](Collage.jpg)
 
-These are a bunch of pictures of hanging out with friends, watching the world cup, chilling with my dog, and playing soccer. It is mostly what my summer consistented of besides summer school. If you have any questions, feel free to ask!
+These are a bunch of pictures of hanging out with friends, watching the world cup, chilling with my dog, and playing soccer (in and out of state). It is mostly what my summer consistented of besides summer school. If you have any questions, feel free to ask!
 
 ---
 
